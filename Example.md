@@ -1,1 +1,1 @@
-This is content,especially for linkedin learning
+This is content,especially for linkedin learning and the understanding of students
